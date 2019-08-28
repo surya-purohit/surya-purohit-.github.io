@@ -1,1 +1,1 @@
-# surya-purohit-.github.io
+# suryapurohit.github.io
